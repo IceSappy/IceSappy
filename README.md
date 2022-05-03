@@ -1,6 +1,6 @@
-- Yo I'm IceSappy
+- Sup I'm IceSappy
 - How to reach me:
 - Twitter: https://twitter.com/IceSappy
-- Discord: IceSappy#1736
+- Discord: Daniell#3909
 - I hope you have a great day!
-- Cya!
+- Bye!
